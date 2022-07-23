@@ -26,3 +26,4 @@ W
 №
 №; thinking
 №
+- 😄 Pronouns: ....."
