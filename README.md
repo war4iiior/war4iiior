@@ -25,6 +25,7 @@ Here are some ideas to get you started:@
 W
 №"
 №; thinking
+smile Pronouns: ....."
 №"
 - 😄 Pronouns: ....."
 - 😄 Pronouns: ....."
